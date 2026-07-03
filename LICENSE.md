@@ -1,4 +1,4 @@
-#  
+#  custom Script for steal the brainrot base is the best steal the brainrot base Script, featuring teleport and speed. Safe and powerful for all your
 
 
 
